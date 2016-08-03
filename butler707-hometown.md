@@ -1,2 +1,7 @@
 ## mundelein,il
-## Royal Cantonise for Mai Tias
+
+## Places to eat
+  -- Royal Cantonise for Mai Tais
+
+## Things to do
+  -- Fourth of July fair
