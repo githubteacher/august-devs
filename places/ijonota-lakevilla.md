@@ -7,4 +7,4 @@
 # Visit Millennium Park
 
 ### awesome places to see
-# Navy Pier
+# Navy Pier, Willis Tower Observatory deck
