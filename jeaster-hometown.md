@@ -15,3 +15,4 @@
 ### Sights To See
  ## Bahai temple of faith
  ## Chicago Architecture Tour
+ ## Grant Park
