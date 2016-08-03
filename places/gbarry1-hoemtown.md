@@ -1,4 +1,4 @@
-# WestDundee
+# West Dundee, IL
 
 ### Places to Eat
 
@@ -7,7 +7,7 @@
 - El Faro
 
 ### Fun things to do
-
+- what is fun to do
 ### Awesome places to see
 
 ### Any Movie theaters
