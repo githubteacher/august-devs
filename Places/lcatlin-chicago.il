@@ -4,4 +4,4 @@
 
 ## Summer Festivals and Concerts
 
-## Willis Tower, Navy Pier
+## Willis Tower, Navy Pier, Millenium Park
