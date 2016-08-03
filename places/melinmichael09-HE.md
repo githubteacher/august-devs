@@ -7,4 +7,4 @@
 - Golf
 
 ### Awesome place to see
-- Woodfield Mall
+- Woodfield Mall - (Where are some other places to see?)
