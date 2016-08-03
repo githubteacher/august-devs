@@ -7,5 +7,5 @@
 - El Faro
 
 ### Fun things to do
-
+- what is fun to do
 ### Awesome places to see
