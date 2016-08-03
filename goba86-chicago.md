@@ -4,4 +4,4 @@
 
 ### Fun things to do
 
-### Aesome places to see
+### Awesome places to see
