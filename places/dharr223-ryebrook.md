@@ -9,4 +9,5 @@ castleview deli
 port chester is the best place to go for nightlife
 
 ### Awesome places to see
-castleview built in 1700s
+There is a castle that was built in 1700s
+Mostly a bedroom community
