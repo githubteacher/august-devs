@@ -1,7 +1,17 @@
-## Things to do in Chicago
+### Things to do in Chicago, Il
 
-### Eat at Lou Malnatis Pizza 
+### Places to Eat
+  ## Lou Malnatis Pizza
+  ## Frontera Grill
+  ## Bad Apple
+  ## Kumas Corner
 
-### Go to a Chicago White Sox Game
+### Events to Attend
+ ## Chicago White Sox Game
+ ## Chicago Cubs Game
+ ## Music Festivals
+ ## Theater shows
 
-### Attend a musical festival
+### Sights To See
+ ## Bahai temple of faith
+ ## Chicago Architecture Tour
