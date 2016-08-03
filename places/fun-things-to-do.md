@@ -1,2 +1,2 @@
 ## places to go
-  -- Zoo
+  -- Navy pier
