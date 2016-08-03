@@ -1,6 +1,8 @@
 ## Colchester, IL
 
-### Beck's 
+### Places to Eat
+
+-- Beck's
 
 ### N/a
 
