@@ -8,3 +8,4 @@
 
 ### awesome places to see
 # Navy Pier
+Have you been to the civil war re-enactment in Lake Villa?
