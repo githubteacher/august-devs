@@ -1,4 +1,4 @@
-# WestDundee
+# West Dundee, IL
 
 ### Places to Eat
 
